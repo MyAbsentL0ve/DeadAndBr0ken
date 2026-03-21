@@ -15,7 +15,7 @@
 
 ${\textsf{\color{#fdedd8}࿐་༘🪽 ࣪ ִֶָ 𓂃..་༘🪽 ࣪ ִֶָ 𓂃..  ִֶָ. panchiko · ── ✦ ── · she / he / any  · ── ✦ ── ·   c + h  · ── ✦ ── ·  sign. ata pls   ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘ ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐}}$
 
-${\textsf{\color{#5e0e23}✦────── . every time w2i . ──────✦}}$
+${\textsf{\color{#5e0e23}✦────── . w2i freely . ──────✦}}$
 
 
 
