@@ -13,7 +13,7 @@
 
 
 
-${\textsf{\color{#fdedd8}࿐་༘🪽 ࣪ ִֶָ 𓂃..་༘🪽 ࣪ ִֶָ 𓂃..  ִֶָ. panchiko · ── ✦ ── · she / he / any  · ── ✦ ── ·   c + h  · ── ✦ ── ·  sign. ata pls   ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘ ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐}}$
+${\textsf{\color{#6f3f52}࿐་༘🪽 ࣪ ִֶָ 𓂃..་༘🪽 ࣪ ִֶָ 𓂃..  ִֶָ. panchiko · ── ✦ ── · she / he / any  · ── ✦ ── ·   c + h  · ── ✦ ── ·  sign. ata pls   ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘ ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐}}$
 
 ${\textsf{\color{#5e0e23}✦────── . w2i freely . ──────✦}}$
 
